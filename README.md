@@ -1,3 +1,2 @@
-# [https:spicyfreecams.com][website] 
-[website]: https:spicyfreecams.com
+<a href="https://spicyfreecams.com" target="_blank">roxpoxy.com</a>
 devlopment repo for roxpoxy.com
