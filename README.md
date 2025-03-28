@@ -1,2 +1,3 @@
-# [roxpoxy.com (https:spicyfreecams.com)][roxpoxy.com] 
+# [https:spicyfreecams.com][website] 
+[website]: https:spicyfreecams.com
 devlopment repo for roxpoxy.com
